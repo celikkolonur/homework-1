@@ -1,0 +1,1 @@
+öylesine oluşturdum silicem.
