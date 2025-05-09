@@ -1,1 +1,0 @@
-eylül çok güzel bi kadın
